@@ -14,7 +14,7 @@ aku pilih untuk menggambarkan lembutnya kamu, Aisyah 🌷
 
 🎵 Ada musik yang mengiringi,  
 ✨ Cahaya yang menari di latar,  
-📸 dan foto-foto yang menyimpan cerita kita.
+📸 dan foto-foto yang menyimpan ceritamu.
 
 ---
 
@@ -42,5 +42,5 @@ Made with 💗,
 Syeh Awaladin
 
 ---
-Nah, sekarang lanjut kesini yaa
-https://syehal823.github.io/Khusus_Buat_Ayang-3/
+
+I Love 3000+ 💗
