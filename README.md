@@ -40,3 +40,7 @@ Itu bukan sekadar tombol — itu kunci menuju kejutan yang aku siapin buat kamu 
 
 Made with 💗,  
 Syeh Awaladin
+
+---
+Nah, sekarang lanjut kesini yaa
+https://syehal823.github.io/Khusus_Buat_Ayang-3/
