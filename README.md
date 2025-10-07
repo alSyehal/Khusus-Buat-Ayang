@@ -5,12 +5,12 @@
 
 ---
 
-## 💞 Tentang Proyek Ini
+## 💞 Apa sih ini?
 Website ini bukan sekadar kumpulan kode,  
 tapi sebuah **ucapan ulang tahun digital** yang penuh kenangan dan rasa.
 
 Setiap warna, animasi, dan suara di dalamnya  
-aku pilih untuk menggambarkan lembutnya kamu, Aisyah 🌷
+aku pilih untuk menggambarkan lembutnya kamu, Ay 🌷
 
 🎵 Ada musik yang mengiringi,  
 ✨ Cahaya yang menari di latar,  
@@ -18,7 +18,7 @@ aku pilih untuk menggambarkan lembutnya kamu, Aisyah 🌷
 
 ---
 
-## 🌹 Untukmu, Aisyah
+## 🌹 Untukmu ayangku, Aisyah
 Selamat ulang tahun, Aisyah Aulia Azizah 🎂  
 Terima kasih sudah menjadi seseorang yang luar biasa —  
 baik, lembut, dan selalu membawa tenang di setiap harinya.
@@ -39,8 +39,12 @@ Itu bukan sekadar tombol — itu kunci menuju kejutan yang aku siapin buat kamu 
 ---
 
 Made with 💗,  
-Syeh Awaladin
+Syehal
 
 ---
 
 I Love 3000+ 💗
+
+---
+
+OH YA, DENGERIN LAGUNYA SAMPAI AKHIR YA NANTI.. 🫶
